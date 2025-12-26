@@ -1,2 +1,2 @@
-# Fedint-Deligasi-Indonesia
+# Fedint-Delegasi-Indonesia
 FDI 
